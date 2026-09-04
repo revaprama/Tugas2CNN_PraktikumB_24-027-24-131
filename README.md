@@ -1,0 +1,1 @@
+# Tugas2CNN_PraktikumB_24-027-24-131
